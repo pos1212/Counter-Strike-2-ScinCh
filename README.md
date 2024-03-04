@@ -1,10 +1,15 @@
 # Counter-Strike-2-ScinCh
-![image](https://i.ytimg.com/vi/-whI2XG3Fxg/maxresdefault.jpg)
 
-💎 Best Sk1nchanger Counter-Strike-2 💎
 
-![image](https://cdn.dribbble.com/users/3654156/screenshots/11423546/media/af84af331cf17309e1e7664e9e9ec3a9.png)
+🌘 Sk1nchanger СS-2 🌒
+
+
 
 Password - 1213
 
-🐙 [Link](https://shorturl.at/egFTU) 🐙
+🌜 [Link](https://shorturl.at/jtPQX) 🌛
+
+
+![image](https://i.ytimg.com/vi/-whI2XG3Fxg/maxresdefault.jpg)
+
+![photo_2024-03-04_17-35-02](https://github.com/pos1212/Counter-Strike-2-ScinCh/assets/95129778/ebbc89e9-1c6d-4d0b-b0d0-7990cea41762)
